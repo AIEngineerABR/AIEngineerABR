@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on AI research projects, Computer Vision applications, and innovative tech solving global challenges
 
-📫 How to reach me: [wahabrasooli2@gmail.com] | LinkedIn: [abdul-wahab-rasooli-6b8bab20b]
+📫 How to reach me: [wahabrasooli2@gmail.com] | LinkedIn: [https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BkPZSbeX1TuKiJnpBcbZYvw%3D%3D]
 
 😄 Pronouns: He/Him
 
